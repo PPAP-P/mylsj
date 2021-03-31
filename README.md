@@ -1,6 +1,6 @@
 # mylsj
 ### 老司機遊玩永久發布頁：
-### *[https://www.mmbbs.cc](https://www.mmbbs.cc)
+### *[https://www.mylsj.xyz](https://www.mylsj.xyz)
 ### 老司機遊玩最近更新域名：
 ### *[https://www.mylsj.xyz](https://www.mylsj.xyz)
 
